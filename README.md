@@ -3,7 +3,7 @@
 看看屋是一个专注于提供在线影视观看服务的网站，主要涵盖最新美剧、韩剧等热门影视内容。该网站通过整合丰富的影视资源，为用户提供便捷的在线观看体验。用户无需下载任何软件或插件，即可在网页上直接观看各类影视作品。看看屋致力于为用户提供高清、流畅的观影体验，同时注重版权保护，对于可能存在的侵权内容，也设立了明确的投诉渠道，以确保合法合规运营。此外，网站还通过优化搜索引擎优化（SEO）技术，提升用户体验和内容的可发现性，方便用户快速找到心仪的影视作品。
 
 <p><strong>一键访问：</strong><a href="https://www.rymdh.com/sites/14385.html" target="_blank" ><strong>看看屋最新网址</strong></a></p>
-<p><strong>一键访问：</strong><a href="https://www.rymdh.com/favorites/yingshizaixiankan" target="_blank" ><strong>影视资源</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://yingshi.xxsnav.com/" target="_blank" ><strong>影视网站大全</strong></a></p>
 <p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/" target="_blank" ><strong>电子书/电影/音乐/漫画/游戏下载</strong></a></p>
 
 ### 功能特点
